@@ -1,0 +1,1 @@
+# Facial-Recognition-with-the-Distance-and-Voice-Command-for-Visually-Impaired-People
